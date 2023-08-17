@@ -8,4 +8,3 @@
 </div>
 
   
-![Currículum, Celina Chiappa_page-0001](https://user-images.githubusercontent.com/107268894/179780788-7203afd0-e3af-4470-8f4c-ead4c63b1791.jpg)
